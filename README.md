@@ -2,7 +2,7 @@
 
 My name is **Rohith Radhakrishnan**.
 
-I am a web enthusiast turned hybrid app developer. I like being _Geeky_, which makes me _Happy_.
+I am a web enthusiast turned hybrid app developer turned product person. I like being _Geeky_, which makes me _Happy_.
 
 
 ### About what I do:
