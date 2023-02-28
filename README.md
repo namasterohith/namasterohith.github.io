@@ -22,7 +22,7 @@ I now work on the technical side of an early stage startup. From developer to an
 
 I also love football, music and gaming.
 
-Currently I am working with: [Zolutions.IO!](https://Zolutions.IO/)
+Currently I am working with: [zenda...](https://www.zenda.com/)
 
 If you would like to talk, please feel free to reach out at:
 namasterohith@gmail.com
